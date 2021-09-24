@@ -1,0 +1,2 @@
+# Abd
+Padat / bermakna
